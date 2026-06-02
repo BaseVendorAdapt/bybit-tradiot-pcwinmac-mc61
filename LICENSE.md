@@ -1,4 +1,4 @@
-# 
+# Turbo bybit trading bot ferramentas para Mac OS | Melhor bybit trading bot ferramentas para PC Windows. Com arbitragem estatística e pools de liquidez DEX — otimizado para máximo desempenho em cada plataforma.
 
 
 
